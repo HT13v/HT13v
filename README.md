@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a learner and love to learn.<br>Like innovative works<br>In love with Technology<br>AI, Neural networks, and Robotics combine this knowledge to do something better for the world<br><br> 
+I am a learner and love to learn.<br>Like innovative works<br>In love with Technology<br><br> 
 
 
 ## 🌐 Socials:
