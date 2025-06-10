@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a learner and love to learn.<br>Like innovative works<br>In love with Technology<br><br> 
+I am a learner and love to learn.<br><br> 
 
 
 ## 🌐 Socials:
